@@ -6,3 +6,4 @@
 მყავს ჯუჯა პუდელი ჟოზეფინა :) და სფინქსი ფლოკი.
 # საყვარელი სერიალები
 Shameless, Modern Family,How I Met Your Mother, შუა ქალაქში.
+# PK
